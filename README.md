@@ -2,7 +2,7 @@
 
 ## A new and more secure method to report any account, post, comment even live stream. This bot can ban/unban and checker to the accounts too.
 
-## THE TOOL IS AVIALABLE FOR Seventy BUCk$ FOR THE LIFETIME AND 25 BUCK$ FOR SINGLE ACCOUNT BAN.
+## THE TOOL IS AVIALABLE FOR Seventy BUCk$ FOR THE LIFETIME AND 40 BUCK$ FOR SINGLE ACCOUNT BAN.
 
 Working is simple and all actions are 100% anonymous through working tool ETA to ban is 45 Minutes to be precise. It works on simultaneous multiple threading on a particular target account.
 
